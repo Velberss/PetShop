@@ -50,4 +50,4 @@ ChowChawgas R$285,00
 ## 📬 Contato
 
 Desenvolvido por Velber Gonçalves  
-[LinkedIn](https://www.linkedin.com/in/velbergoncalves/)
+[LinkedIn](https://www.linkedin.com/in/velber-fernandes)
